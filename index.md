@@ -91,7 +91,7 @@ I may update our Terms and Conditions from time to time. Thus, you are advised t
 
 These terms and conditions are effective as of 2020-05-18
 
-### Contact Us**
+### Contact Me
 
 If you have any questions or suggestions about my Terms and Conditions or about my Privacy Policy, do not hesitate to contact me at refenesapp@gmail.com.
 
